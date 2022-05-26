@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://telegra.ph/file/0c948e309cc07fb7f3cfa.jpg" alt="XzeeBotz" width="500"/>
+<img src="https://telegra.ph/file/8c6ecb749d90d227d52c3.jpg" alt="XzeeBotz" width="500"/>
 
 
 <p align="center">
